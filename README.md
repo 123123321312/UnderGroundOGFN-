@@ -16,6 +16,8 @@ If you need any proof, feel free to DM me.
 # GROUP SPAZZES OUT ONCE REPO EXISTS 
 <img width="1048" height="1267" alt="image" src="https://github.com/user-attachments/assets/d44dc6e7-8c08-4c55-bf61-10da0aec088a" />
 <img width="474" height="414" alt="image" src="https://github.com/user-attachments/assets/e40b3e91-f668-44bb-8103-fa0d89df4dc0" />
+<img width="944" height="1255" alt="image" src="https://github.com/user-attachments/assets/024d8360-57b5-4432-8e99-fc88dad0263d" />
+
 
 
 # BEING A 🍕 LOVER 
