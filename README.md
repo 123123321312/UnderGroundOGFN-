@@ -21,6 +21,7 @@ If you need any proof, feel free to DM me.
 
 
 # BEING A 🍕 LOVER 
+<img width="1176" height="118" alt="image" src="https://github.com/user-attachments/assets/9009a0e7-c316-4661-b0d0-62aa4301c7c2" />
 
 <img width="388" height="205" alt="image" src="https://github.com/user-attachments/assets/7448258a-be8c-4980-9e88-980310f28b31" />
 
