@@ -4,7 +4,6 @@ i know github ogfn things are corny asf now BUT its worth it.
 # GROUP SPAZZES OUT ONCE REPO EXISTS 🎶
 <img width="1048" height="1267" alt="image" src="https://github.com/user-attachments/assets/d44dc6e7-8c08-4c55-bf61-10da0aec088a" />
 
-<img width="1048" height="1267" alt="image" src="https://github.com/user-attachments/assets/8433ad85-4668-48e9-9a7e-54819d592555" />
 
 # BEING A 🍕 LOVER 
 
