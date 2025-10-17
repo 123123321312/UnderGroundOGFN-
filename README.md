@@ -2,7 +2,16 @@
 i know github ogfn things are corny asf now BUT its worth it.
 # will be updated when more proof or i get more info <3
 
+# very nice explantion summed up 
 
+I shared a MEGA folder link from a Discord server because someone asked me for a porn folder. I didn’t make the folder myself and I never checked what was inside it. Later, I found out people were saying it might have had illegal content in it, possibly involving minors.
+
+As soon as I heard that, I deleted the MEGA link, left the server, and deleted my account. I never meant to share anything illegal, and I honestly didn’t know what was in that folder. I take this very seriously and I’m willing to cooperate if needed.
+If you need any proof, feel free to DM me.
+@everyone
+
+
+ # - Im sorry i sent cp and porn on "accident" it was a mistake, please forgive me.
 
 # GROUP SPAZZES OUT ONCE REPO EXISTS 
 <img width="1048" height="1267" alt="image" src="https://github.com/user-attachments/assets/d44dc6e7-8c08-4c55-bf61-10da0aec088a" />
