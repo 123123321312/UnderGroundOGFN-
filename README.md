@@ -1,9 +1,6 @@
 # Behind the scenes at Project Underground
 i know github ogfn things are corny asf now BUT its worth it.
 # will be updated when more proof or i get more info <3
-# SKIDDING 
-
-# i know dlls are useless, but if u want to play ch5s1, there u go (shouldnt crash)
 
 # BEING A 🍕 LOVER 
 
